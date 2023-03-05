@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ysrishu1031@gmail.com**
 
-- ⚡ Fun fact **I am a nerd in movies and anime and I also video editing**
+- ⚡ Fun fact **I am a nerd in movies and anime and I also do video editing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
